@@ -1,1 +1,1 @@
-# Arifian
+# Submit Campuspedia Intern
